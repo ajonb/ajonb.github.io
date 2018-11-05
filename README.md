@@ -1,1 +1,3 @@
-借口听起来对于那些正在制作它们的人来说最好。请为自己感到遗憾。取消可惜的便盆。
+Excuses sound best to the person who's making them up.Stop feeling sorry for yourself.Get off the pity potty.
+
+2018.11.5
